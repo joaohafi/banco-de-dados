@@ -1,3 +1,1 @@
-João marcelo el hafi batista// 
-Rodrigo Pozo Griecco //
-Gabriel Nascimento de Carlo
+ João marcelo el hafi batista, Estudante de T.i , 4° semestre
